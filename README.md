@@ -1,1 +1,5 @@
-Climate Change
+ - Climate Change
+ - destroying the atmosphere
+ - melting the glaciers
+ - heating up the planet
+ - Climate change bad, no climate change good.
