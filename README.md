@@ -5,3 +5,15 @@
 - These chemicals also help trap the heat in the atmosphere which is called the greenhouse effect.
 - The Earth heating up causes many issues all around the planet.
 - One issue is that the glaciers are starting to melt which rises the sea level, harming the people and animals on the shores.
+- Another issue is that the melting of the glaciers changes the salt levels in the oceans which disturbs many speicies.
+- One way this can be prevented is by increasing the amount of plants and algae.
+- Historically algae has been responsible for removing dangerous chamicals from the atmosphere and replacing it.
+- Some other ways are for people to use products that do not affect the atmosphere.
+- Sadly, the individual person cannot make much of a difference.
+- With many people in power not caring about the environment climate change still is a major issue.
+- A lot of cleaner optiions are more not used due to them being more expensive or looking bad in the eyes of the people.
+- For example, some nuclear reactors have been replaced with coal plants to appease the population.
+- Nuclear plants create waste that has the potential to harm many people while coal plants create waste that harms people in the moment.
+- Coal plant waste is more subtle than nuclear disasters so their reputation is better.
+- The best way to prevent this is to be informed on what is actually least harmful to the environment.
+- Once that is done, people in power who do not support the clener options need to be removed in favor for people who do.
